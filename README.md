@@ -1,0 +1,1 @@
+# MC-s-Product-Details-Application
